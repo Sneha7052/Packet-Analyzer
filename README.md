@@ -1,4 +1,4 @@
-![PHOTO-2026-04-13-13-13-41](https://github.com/user-attachments/assets/60cd6e74-d401-4f67-8c72-d0b2b9158059) [ARCHITECTURAL DIAGRAM ]
+![PHOTO-2026-04-13-13-13-41](https://github.com/user-attachments/assets/60cd6e74-d401-4f67-8c72-d0b2b9158059) 
 .
 .
 .
